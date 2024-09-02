@@ -9,3 +9,4 @@ so i tried to incorporate that tradition into
 a tiffin, its kinda healthy as well smh i read
 abt it somewhere
 anyway, model artwork in repository 
+![IMG_20240822_221140](https://github.com/user-attachments/assets/71eb4c19-8651-4dde-92fb-9566e660e1ac)
